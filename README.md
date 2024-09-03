@@ -1,0 +1,1 @@
+The Tata Group Data Visualisation Simulation exercise taught how to empower businesses with effective insights. The skills acquired include Analysis and Presentation, Analytics and Insights,Charts and Graphs, Dashboard, Data Analysis, Data Interpretation, Data Visualisation and Effective Communication.
